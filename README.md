@@ -1,1 +1,0 @@
-# fitur-african-adventure-proposal
